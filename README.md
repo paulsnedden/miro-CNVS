@@ -1,2 +1,1 @@
-# Miro Creator Community Sticker Packs
-Stickers
+# Miro CNVS Sticker Pack
